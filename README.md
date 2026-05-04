@@ -6,3 +6,4 @@ https://drive.google.com/file/d/1njkhFElGLH_wVGhnb1lWvUcA6MO-SoNF/view?usp=drive
 IBM certificate:
 https://drive.google.com/file/d/1ft-bfP6Xy2HXSvMZYvL_5alVAHVBMZX8/view?usp=drivesdk
 Video :
+https://drive.google.com/file/d/1G9IpytnhCFuoN1KLrrILE7q3bIefHJfD/view?usp=drivesdk
