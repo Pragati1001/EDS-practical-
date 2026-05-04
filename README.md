@@ -11,3 +11,5 @@ Practical 1:
 https://drive.google.com/file/d/17yj28Sf2pFZ-tiKYsEHi610tfpikU7n-/view?usp=drivesdk
 Practical 2:
 https://drive.google.com/file/d/14m8fOHD5CQSOBlkzuSp42zIGtIb7aJ3f/view?usp=drivesdk
+Practical 3:
+https://drive.google.com/file/d/15n177QwHMZmKJY3X4aoOCz9xQxxz5bH0/view?usp=drivesdk
